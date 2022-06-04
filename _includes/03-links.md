@@ -1,1 +1,1 @@
-[GitHub](https://github.com/MhdSalahu)
+Click on [GitHub](https://github.com/MhdSalahu) to see magic :sparkler:
